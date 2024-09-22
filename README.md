@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mrhoomanwastaken
 - 👀 I’m interested in ... computer programming (thats why im here)
 - 🌱 I’m currently learning ... stuff
-- 💞️ I’m looking to collaborate on ... pypg
+- 💞️ I’m looking to collaborate on ... your mom.
 - 📫 How to reach me ... dont
 
 <!---
